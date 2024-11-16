@@ -14,7 +14,7 @@ Set after *Dragon Ball Z*, GT follows Goku, now reverted to a child by the Black
 
 ### **Dragon Ball Daima**
 *Dragon Ball Daima* introduces a new adventure for Goku and his allies, who are mysteriously transformed into childlike versions of themselves. This unique twist sees them facing new challenges while exploring a blend of light-hearted and high-stakes battles. The series aims to recapture the adventurous spirit of earlier arcs with new mysteries and foes.
- 
+
 ## 2. **One Piece**
 *One Piece* tells the story of Monkey D. Luffy, a spirited young pirate with the ability to stretch like rubber. Luffy and his diverse crew travel the Grand Line in search of the legendary One Piece treasure, aiming to make Luffy the Pirate King while encountering formidable enemies and building lasting friendships.
 
@@ -29,6 +29,9 @@ This sequel follows Boruto Uzumaki, Naruto's son, and his adventures in a more t
 
 ## 4. **Fairy Tail**
 *Fairy Tail* centers around a magical guild named Fairy Tail, known for its powerful and eccentric wizards. The series follows Natsu Dragneel, Lucy Heartfilia, and their guildmates as they go on dangerous quests, battle dark forces, and strengthen their bonds of friendship.
+
+### **Fairy Tail: 100 Years Quest**
+This sequel follows Natsu, Lucy, and their team as they take on the "100 Years Quest"—a mission that has gone uncompleted for a century due to its extreme difficulty. They encounter powerful new dragons, ancient threats, and face challenges that push their limits. The story continues to explore the growth and bonds of Fairy Tail's members while delving deeper into magical mysteries.
 
 ## 5. **Bleach**
 *Bleach* follows Ichigo Kurosaki, a teenager who unexpectedly gains the powers of a Soul Reaper—spiritual beings tasked with defending the living and spirit worlds. With his newfound abilities, Ichigo battles evil spirits known as Hollows and faces complex struggles across different dimensions.
